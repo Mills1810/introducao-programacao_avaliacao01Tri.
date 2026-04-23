@@ -1,1 +1,1 @@
-# introducao-programacao_avaliacao01Tri.
+# introducao-programacao_avaliacao01Tri Leticia Moretto.
